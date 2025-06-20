@@ -1,5 +1,5 @@
 # Game 7 NBA Finals
-https://ai-for-everydaylife2025.blogspot.com/
+Download This File
 ![image](https://github.com/user-attachments/assets/de6ad203-f104-422a-b2a8-10cec68b272f)
 
 🏀 This project is a tribute to the most thrilling moments in NBA history — Game 7 of the NBA Finals.
